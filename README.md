@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with programming
 - 💬 Ask me about my origin
 - 📫 How to reach me: jacques.grandjean@epfl.ch
-- 😄 Pronouns: he/his  
+- 😄 Pronouns: xe/xim  
 - ⚡ Fun fact: i like guitar
 -->
